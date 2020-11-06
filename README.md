@@ -1,3 +1,3 @@
 I WANNA CHICKEN
 =====================
-Life is funking hard...
+Life is funking hard... Baegopayo
