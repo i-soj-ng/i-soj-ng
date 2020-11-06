@@ -1,3 +1,3 @@
-I WANT TO EAT CHICKEN
+I WANNA CHICKEN
 =====================
 Life is funking hard...
