@@ -1,2 +1,2 @@
-#Music Of The Day🎵
-[![Candle lit dinner - softy](/Users/이소정/pictures/capture.jpg)](https://youtu.be/J_tTDAsJ9CE)
+#Music Of The Day🎵<br>
+[![Candle lit dinner - softy](/pictures/capture.jpg)](https://youtu.be/J_tTDAsJ9CE)
